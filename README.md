@@ -1,0 +1,1 @@
+# developer-shamandok-mini-app
